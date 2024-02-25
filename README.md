@@ -1,0 +1,2 @@
+# Deninsom
+Btc halfing power
